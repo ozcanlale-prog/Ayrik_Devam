@@ -1,1 +1,3 @@
 # Ayrik_Devam
+
+Ayrık matematik çalışmalarına hız kesmeden devam ediyoruz. Kolay gibi gözüküyor gerçekten kolay...
